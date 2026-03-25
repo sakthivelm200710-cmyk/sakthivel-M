@@ -1,2 +1,2 @@
-# MY_FRIST_POJECT_\n
+# MY_FRIST_POJECT_
 created by sakthivel M
